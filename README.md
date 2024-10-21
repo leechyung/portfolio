@@ -1,4 +1,4 @@
-## 포트폴리오
+## 이창형의 포트폴리오
 <br>
 
 ![Slide 16_9 - 1](https://github.com/user-attachments/assets/a5faea3a-7a2c-478f-8a02-59205c48836f)<br>
